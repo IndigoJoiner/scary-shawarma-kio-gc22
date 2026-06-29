@@ -1,4 +1,4 @@
-#  
+#  scary shawarma kiosk stealth Scripts is the best scary shawarma kiosk Script, featuring no cooldown and fly. Safe and powerful for all your needs.
 
 
 
